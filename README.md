@@ -200,6 +200,7 @@
 
 ### 草莓三明治
 
+![](https://wx2.sinaimg.cn/large/7171171cly1fovx1ot9k2j21400u0tdg.jpg)
 
 **第一步：备料**
 
